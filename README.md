@@ -1,1 +1,1 @@
-![image](https://github.com/BrayanASS/bas-game-guide/assets/80291252/5cc6b10d-94a7-4e68-a3a9-c33e9a876725)
+![image](https://github.com/BrayanASS/bas-game-guide/assets/80291252/756ac359-47b2-41d9-bc03-7a0333a25f2d)
